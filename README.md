@@ -1,1 +1,1 @@
-# edi mothamproject gurinchi chebuthundi
+# edi motham project gurinchi chebuthundi
